@@ -1,4 +1,4 @@
-# Azure Innovators Hub
+# Global Azure 2024 by Azure Innovators Hub
 
 ![Community title](azureinnovatorshub.png)
 
