@@ -17,10 +17,10 @@ The venue will be announced until the end of February 2025! It is going to be in
 
 **💶Sponsors - We are looking for sponsors. Reach out to the organizers team at:**
 
-https://www.linkedin.com/groups/14554418/ and https://cloudlogic.gr
+https://www.linkedin.com/groups/14554418/ and https://mvpgreece.gr
 
 If you have any questions, feedback or thoughts, please reach out to the community organizers at:
 * https://www.linkedin.com/groups/14554418/
-* https://cloudlogic.gr
+* https://mvpgreece.gr
 	
 
